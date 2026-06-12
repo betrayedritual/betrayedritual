@@ -1,2 +1,3 @@
-   <img src="https://pbs.twimg.com/media/G6i9-UcXcAA44J3?format=png&amp;name=small" alt="Image"/>
-Online: normal mode Do not disturb: evil mode idle: emotionless mode😭😭😭😭😭😭😭😭😭😭😭
+align="center">
+<img src="https://static.wikia.nocookie.net/twisted-wonderland/images/c/c7/Card_Idia_SSR_New_Year%27s_Attire.png/revision/latest/scale-to-width-down/1920?cb=20251229134700" alt="Idia New Year&#39;s Attire | Twisted Wonderland Wiki | Fandom"/>
+arigato
